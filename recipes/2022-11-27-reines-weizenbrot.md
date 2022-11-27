@@ -20,7 +20,7 @@ Dieses Rezept ist auf dem [Pötzlblog von Lutz Geißler](https://www.ploetzblog.
 
     Sauerteig
     135 g Weizenruchmehl
-    470 g Weizenhalbweiss
+    470 g Weizenhalbweissmehl
     435 g Wasser (50°C)
     15 g Salz
 
