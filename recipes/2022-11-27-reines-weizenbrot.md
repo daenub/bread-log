@@ -33,3 +33,12 @@ Den Autolyse-Schritt habe ich weggelassen und direkt alles im Hauptteig vermisch
 ## Backen
     250° 15min im Topf, geschlossen
     220° 25min im Topf, ohne Deckel
+    
+## Log
+
+### 26. November 2022
+- Länger backen ohne Deckel für eine dunklere Kruste
+- Brot ist schon sehr hell, vielleicht mal Ruch- durch Vollkornmehl und Halbweiss- durch Ruchmehl ersetzen.
+- Schmecht aber wunderbar :)
+- Krume ist schön elastisch
+- Schluss nach oben sieht wunderbar aus!
