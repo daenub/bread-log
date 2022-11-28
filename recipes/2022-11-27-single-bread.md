@@ -33,3 +33,4 @@ Mit dem Schluss nach unten in zwei Gärkörbchen geben und 12-14 Std im Kühlsch
 
 ### 24. November 2022
 - Roggenvolkorn macht das Brot schon einiges dunkler und dichter.
+- Menge an Hefe könnte wahrscheinlich ohne weiteres reduziert werden.
